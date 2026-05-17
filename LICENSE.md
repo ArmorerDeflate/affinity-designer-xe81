@@ -1,4 +1,4 @@
-# 
+# secure Affinity Photo para PC addons é o melhor Affinity Photo para PC addons com rastreamento de movimento e fluxo de trabalho baseado em nós. Seguro, confiável e otimizado para
 
 
 
